@@ -15,7 +15,7 @@
 </ol>
 
 **<p>РЕЗУЛЬТАТ<p>**
-[>>> Ссылка на zip-архив](https://drive.google.com/file/d/1D_Sdv09RSwnzCGgmj45EjrBs8W3iqr6A)
+[>>> Ссылка на zip-архив](https://drive.google.com/file/d/1sEn49FW8wo-d67qMNGM66zWuvuqXvPa2/view)
 
 <br>
 
